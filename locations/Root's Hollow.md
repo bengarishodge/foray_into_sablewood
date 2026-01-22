@@ -1,0 +1,1 @@
+Village in the north of the [[Sablewood]]. Hard to find. Underground.

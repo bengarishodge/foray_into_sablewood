@@ -1,0 +1,1 @@
+Mysterious briar mass that travels throughout the [[Sablewood]].

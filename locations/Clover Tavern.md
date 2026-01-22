@@ -1,0 +1,1 @@
+Tavern in [[Hush]]. Built inside of a large tree.
