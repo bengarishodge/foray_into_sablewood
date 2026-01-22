@@ -1,0 +1,1 @@
+[[galapa]] merchant headed to [[Hush]].
