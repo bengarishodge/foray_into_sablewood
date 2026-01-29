@@ -15,7 +15,7 @@ We arrive in the village and there is the a festival going on. It is the [[First
 note:
 If we go to [[Root's Hollow]], we can purify the sap that [[Skyy]] collected. It can be fermented to produce a powerful healing potion. It is in a t.own far north in the [[Sablewood]].
 
-We head to the [[Clover Tavern]], a tavern in a large tree. We enter and ask after the [[White Fire Archanist]].  We learn she has a tower south of the village. We also learn that the ship's crew has rented the top floor of the tavern. We can speak with [[Halithon]] for more info on the [[thistlefolk]] and more information on the [[Wandering Brair]].
+We head to the [[locations/Clover Tavern]], a tavern in a large tree. We enter and ask after the [[White Fire Archanist]].  We learn she has a tower south of the village. We also learn that the ship's crew has rented the top floor of the tavern. We can speak with [[Halithon]] for more info on the [[thistlefolk]] and more information on the [[Wandering Brair]].
 
 We learn that the captain of the airship is [[Captain Cane]]. They like drinking a [[bugbane berry wine]]. But has recently run out of it.
 

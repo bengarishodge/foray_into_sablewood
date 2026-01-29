@@ -1,1 +1,1 @@
-Representative in [[Hush]] that is our contact.
+Representative in [[Hush]] that is our contact. A fairy and giant.

@@ -1,1 +1,1 @@
-leader of the airship's crew
+leader of the [[RAS Windfall]]. Rank of commander.
