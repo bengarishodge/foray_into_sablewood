@@ -1,0 +1,1 @@
+Leader of the [[thistlefolk]] of the [[Wandering Brair]]. Destroyed the [[High Brush]] camp with the [[Wandering Brair]]. Enemy of [[Zen]].

@@ -1,1 +1,1 @@
-Mysterious briar mass that travels throughout the [[Sablewood]].
+Mysterious briar mass that travels throughout the [[Sablewood]]. Can be coaxed into moving directions.

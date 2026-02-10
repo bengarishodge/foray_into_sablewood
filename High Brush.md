@@ -1,0 +1,1 @@
+Abandoned [[thistlefolk]] camp near [[Hush]].
