@@ -1,0 +1,1 @@
+Giant monster that protects [[Root's Hollow]].
